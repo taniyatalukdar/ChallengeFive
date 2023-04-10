@@ -1,0 +1,1 @@
+I worked witn my tutore, Kelli Kenndey, who helped me a lot throught the Challenge. I also sought help from the internet to understand some of the concepts. And, as usual, my coder friend also helped me.
